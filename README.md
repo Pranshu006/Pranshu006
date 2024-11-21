@@ -2,7 +2,7 @@
 - 👀 I’m interested in Coding 
 - 🌱 I’m currently pursuing BTech from NMIMS MPSTME
 - 💞️ I’m looking to collaborate on cool projects and websites to design!
-- 📫 To to reach mail me anytime ou want 😉
+- 📫 To to reach mail me anytime you want 😉
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I am also a PC Gamer
 
